@@ -16,4 +16,4 @@ I belong to southern part of india.I have completed my undergrauted studies from
 ## Image
 
 
-- ![Gambir](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTvu6z4tVIuf0DmNjeI_g8P6Cj5BYZ9RyZfvg&usqp=CAU)
+ ![Gambir](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTvu6z4tVIuf0DmNjeI_g8P6Cj5BYZ9RyZfvg&usqp=CAU)
